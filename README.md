@@ -1,1 +1,1 @@
-# ezekieldaviddigitalresume.github.io
+# ezekieldavid.github.io
